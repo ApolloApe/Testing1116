@@ -1,1 +1,1 @@
-Apollo Ape and his awesome adventures!
+Apollo Ape and Daniel's awesome adventures!
